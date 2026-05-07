@@ -1,1 +1,1 @@
-#gptmini bot-sasuke pny x ciminal 09
+#gptmini bot-sasuke x pny ciminal 09
